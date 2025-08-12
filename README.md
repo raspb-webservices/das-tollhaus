@@ -1,3 +1,0 @@
-# Meine neue Webseite
-
-coming soon...
