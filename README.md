@@ -1,5 +1,3 @@
-# NEW WEBSITE
+# Meine neue Webseite
 
-## Pro Civibus Stiftung GmbH, Frankfurt a. Main
-
-More to come...
+coming soon...
